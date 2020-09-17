@@ -11,7 +11,7 @@ I created landing pages on the Adobe Muse platform. I liked creating sites and d
 
 ### Education
 Peter the Great St. Petersburg Polytechnic University **|** Санкт-Петербургский политехнический университет Петра Великого
-* Маркетинг
+* Marketing
 
 ### English
 Pre-Intermediate
